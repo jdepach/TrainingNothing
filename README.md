@@ -1,1 +1,1 @@
-# trainingnothing.github.io
+# TrainingNothing
